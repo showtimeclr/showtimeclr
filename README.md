@@ -1,0 +1,6 @@
+-Hi,Im SHOWTIME
+- 👋 Hi, I’m SHOWTIME
+- 👀 I’m interested in GUAPO
+- 🌱 I’m currently learning GUAPOO
+- 💞️ I’HIM
+- 📫 How to reach me, NEVER --->
